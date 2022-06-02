@@ -1,1 +1,1 @@
-corinthians my life corinthians my love
+corinthians minha vida corinthians meu amor
