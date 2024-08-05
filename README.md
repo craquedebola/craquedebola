@@ -1,4 +1,4 @@
-<b>Luis Gabriel e João Victor Cruz</b>
+<b>João Victor Cruz, o mais esbelto</b>
 
 ♦️♠️
 
